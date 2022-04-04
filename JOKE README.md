@@ -9,4 +9,4 @@ but don't be decieved when they tell you it's easy, actually not is ever easy
 
 let roll and get rolled as we pen down our grieviances
 
-cry, its allowed but don't share tears because some mosnters do't like to see tears. they might hurt you
+cry, its allowed but don't share tears because some mosnters do't like to see tears. they might hurt you !
